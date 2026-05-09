@@ -1,4 +1,4 @@
-
+Experience anime vanguards like never before with anime vanguards elite Scripts, the #1 Script. Includes auto-farm and undetectable for unbeatable
 
 
 
